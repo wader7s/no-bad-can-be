@@ -1,0 +1,2 @@
+# no-bad-can-be
+Fnbacbefaiaaaraaartbafcanbacbgfefboomdcbsyniggaugmgmgipnipnigfpcvsfgfaoaib
